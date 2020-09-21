@@ -1,2 +1,2 @@
-## Hello! I'm Brihadeesh, Thanks for Stopping By!
+## Hi
 Coffee☕ and Cs🖥️
