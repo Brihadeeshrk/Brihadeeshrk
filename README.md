@@ -1,2 +1,2 @@
 ## Hi
-Coffee☕ and Cs🖥️
+☕ and 🖥️
